@@ -1,3 +1,4 @@
+![기본1](https://user-images.githubusercontent.com/55867032/214564328-ce2f94a4-2025-46e8-a7ed-47bf780a62b1.png)
 
-![캡처](https://user-images.githubusercontent.com/55867032/214365275-108d1813-ddce-4aac-8da6-76af9fb47595.PNG)
+
 
